@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating a projects
 - 🌱 I’m currently learning Artificial intelligence
 - 💞️ I’m looking to collaborate on technical
-- 📫 Reach me through Email (pujithapuvvadi53@gmail.com)
+- 📫 Reach me through Email (pujithapuvvadi23@gmail.com)
 - 😄 Pronouns:Pujitha Puvvadi
   
 
